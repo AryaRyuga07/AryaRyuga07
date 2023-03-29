@@ -1,5 +1,5 @@
 # 💫 About Me:
-HELLO I AM ARYA RYUGA
+Newbie
 
 
 ## 🌐 Socials:
